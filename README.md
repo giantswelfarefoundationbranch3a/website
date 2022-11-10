@@ -1,2 +1,1 @@
-# Giants Wellfare Foundation (NGO)
-
+# Giants Wellfare Foundation
