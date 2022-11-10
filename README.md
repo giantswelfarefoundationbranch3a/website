@@ -1,3 +1,2 @@
-# Second Inning House (NGO)
-Live Website 
-https://secondinninghouse.com/
+# Giants Wellfare Foundation (NGO)
+
